@@ -2,7 +2,7 @@
   <h1 align="center">fish.</h1>
 </div>
 
-INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE. yes i can be really weird sometimes.
+INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
 
  hi im solace/bread im a minor and my interests are msi, forsaken, combat initiation, PLS COMBAT INITIATION FANS WRY.. 💔
 
