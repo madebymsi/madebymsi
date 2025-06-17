@@ -14,3 +14,5 @@ i said it in my bio and im also gonno say it here c+h/int is heavily encouraged.
 🟢/🌙 free to interact
 
 ⛔️ little to no response or just busy
+
+💤 afk
