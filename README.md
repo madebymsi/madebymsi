@@ -7,7 +7,7 @@ INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
  hi im solace/bread im a minor and my interests are msi, cof, forsaken, combat initiation, PLS COMBAT INITIATION FANS WRY.. 💔
 
 BYI
-ive noticed i have a social awareness of a potato and that i suck at carrying the convo im sorry if im boring to talk to, im actively trying my best to literally just stay in topic since i jump from one to another without realizing, im really socially awkward at first so mybad if i make the convo dry. sometimes im too shy to approach you. im kind of a sensitive person at heart so if ur like a stranger to me i would take it srsly if u told me something mean without making it obvious
+ive noticed i have a social awareness of a potato and that i suck at carrying the convo im sorry if im boring to talk to, im actively trying my best to literally just stay in topic since i jump from one to another without realizing, im really socially awkward at first so mybad if i make the convo dry. sometimes im too shy to approach you. im kind of a sensitive person at heart so if ur like a stranger to me i would take it srsly if u told me something mean without making it obvious. plspls use he/him pronouns i lwk get upset when someone uses she/her but its ok, lol pink white purple black blue
 
 i said it in my bio and im also gonno say it here c+h/int is heavily encouraged. tc
 
