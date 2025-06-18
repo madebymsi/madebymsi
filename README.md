@@ -22,3 +22,5 @@ if u even care (not really important)
 im kind of a sensitive person at heart so if ur like a stranger to me i would take it srsly if u told me something mean without making it obvious
 
 DNI: weird ppl in general, proshippers, idc if its ur copping mechanism it makes me uncomfortable. HEAVY dni if ur whole personality is ur partner im not tolerating ur 5 paragraph bs on how much u miss ur partner/ex, super sensitive people is an exeption but you should interact w caution.
+
+still a wip okay hai bai
