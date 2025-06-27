@@ -4,7 +4,7 @@
 
 INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
 
- hi im solace/bread im a minor and my interests are msi, cof, forsaken, combat initiation, PLS COMBAT INITIATION FANS WRY.. 💔
+ hi im solace/bread im a minor and my main interests are msi, cry of fear, forsaken, combat initiation, PLS COMBAT INITIATION AND CRY OF FEAR FANS WRY.. 💔
 
 BYI
 ive noticed i have a social awareness of a potato and that i suck at carrying the convo im sorry if im boring to talk to, im actively trying my best to literally just stay in topic since i jump from one to another without realizing, im really socially awkward at first so mybad if i make the convo dry. sometimes im too shy to approach you. plspls use he/him pronouns i lwk get upset when someone uses she/her but its ok, lol pink white purple black blue
