@@ -20,4 +20,4 @@ if u even care (not really important)
 
 DNI: weird ppl in general, proshippers, idc if its ur copping mechanism it makes me uncomfortable. HEAVY dni if ur whole personality is ur partner im not tolerating ur 5 paragraph bs on how much u miss ur partner/ex, super sensitive people is an exeption but you should interact w caution.
 
-![image](https://github.com/user-attachments/assets/0a82c65c-8eb1-4903-b9d4-29246446c67c)
+![image](https://github.com/user-attachments/assets/2178ac70-8ded-49a6-a5c9-66297795cc17)
