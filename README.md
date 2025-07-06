@@ -25,7 +25,7 @@
 <ul>
   <li>weird ppl in general like ppl who claim to be narcissistics (undiagnosed) and thinks they r superior or smt</li>
   <li>proshippers or anything like that</li>
-  <li>people whose whole personality is their partner/ex — im not tolerating ur 5 paragraph bs on how much u miss them</li>
+  <li>people whose whole personality is their partner/ex — im not tolerating ur yap session bs on how much u miss them (yes im talking about u ruben)</li>
   <li>super sensitive ppl dni dni dni dni</li>
   <li>id like my friends to be over 13 ok, unless set with boundaries</li>
 </ul>
