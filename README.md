@@ -2,22 +2,34 @@
   <h1 align="center">fish.</h1>
 </div>
 
-INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
+<p><b>INTERACT WITH CAUTION:</b> my humour can make SOME people uncomfortable. sorry sorry id hate to make u uncomfortable</p></p>
 
- hi im solace/bread im a minor and my main interests are msi, cry of fear, forsaken, combat initiation, PLS COMBAT INITIATION AND CRY OF FEAR FANS WRY.. 💔
+<p>hi im solace/bread im a minor (15). main interests are <b>MSI, cry of fear, forsaken, combat initiation</b> (CRY OF FEAR AND COMBAT INITIATION FANS WYA 💔)</p>
 
-BYI
-ive noticed i have a social awareness of a potato and that i suck at carrying the convo im sorry if im boring to talk to, im actively trying my best to literally just stay in topic since i jump from one to another without realizing, im really socially awkward at first so mybad if i make the convo dry. OK I NOTICED LIKE ALOT OF TIMES WHEN THE CONVO GETS DRY OR AWKWARD I TEND TO LEAVE MAKING A STUPID EXCUSE IM SORRY I CANT HELP IT 💔
+<h3>BYI</h3>
+<ul>
+  <li>i have the social awareness of a potato</li>
+  <li>i struggle w keeping convos going + i jump topics without realizing</li>
+  <li>i may seem dry or awkward at first, pls be patient with me.</li>
+  <li>if convos get awkward i tend to leave with an excuse, im sorry in advance 💔</li>
+</ul>
 
-if u even care (not really important)
-
-🌙/🟢 free to interact
-
-⛔️ little to no response or just busy
-
-💤 afk
+<h3>if you even care (not important)</h3>
+<ul>
+  <li>🌙 / 🟢 = free to interact</li>
+  <li>⛔️ = little to no response / busy</li>
+  <li>💤 = afk</li>
+</ul>
 
 <h3>DNI</h3>
-weird ppl in general, proshippers, idc if its ur copping mechanism it makes me uncomfortable. HEAVY dni if ur whole personality is ur partner im not tolerating ur 5 paragraph bs on how much u miss ur partner/ex ruben is an exeption lmao, super sensitive people dni dni dni dni, i would like my friends to be atleast over 13 ok unless set with boundaries
+<ul>
+  <li>weird ppl in general</li>
+  <li>proshippers or anything like that</li>
+  <li>people whose whole personality is their partner/ex — im not tolerating ur 5 paragraph bs on how much u miss them</li>
+  <li>super sensitive ppl dni dni dni dni</li>
+  <li>id like my friends to be over 13 ok, unless set with boundaries</li>
+</ul>
+
+dude i love c+h i dont put it in my display cus i cant be bothered. i would love for you to start convos first I FW TALKATIVE PPL
 
 ![image](https://github.com/user-attachments/assets/2178ac70-8ded-49a6-a5c9-66297795cc17)
