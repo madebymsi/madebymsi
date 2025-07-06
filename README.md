@@ -17,7 +17,7 @@ if u even care (not really important)
 
 💤 afk
 
-
-DNI: weird ppl in general, proshippers, idc if its ur copping mechanism it makes me uncomfortable. HEAVY dni if ur whole personality is ur partner im not tolerating ur 5 paragraph bs on how much u miss ur partner/ex ruben an exeption. super sensitive people dni dni dni dni
+<h3>DNI</h3>
+weird ppl in general, proshippers, idc if its ur copping mechanism it makes me uncomfortable. HEAVY dni if ur whole personality is ur partner im not tolerating ur 5 paragraph bs on how much u miss ur partner/ex ruben is an exeption lmao, super sensitive people dni dni dni dni, i would like my friends to be atleast over 13 ok unless set with boundaries
 
 ![image](https://github.com/user-attachments/assets/2178ac70-8ded-49a6-a5c9-66297795cc17)
