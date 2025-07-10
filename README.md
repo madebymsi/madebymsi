@@ -6,7 +6,7 @@
 
 <p>hi im solace im a minor (15). main interests are <b>MSI, cry of fear, forsaken, combat initiation</b> (CRY OF FEAR AND COMBAT INITIATION FANS WYA 💔)</p>
 
-<h3>BYI/BYF</h3>
+<h3>BYI/BYF (also look in rentry pls!)</h3>
 <ul>
   <li>i have the social awareness of a potato, yes i will think awkward silence is comfortable silence.</li>
   <li>i struggle w keeping convos going + i jump topics without realizing</li>
