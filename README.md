@@ -6,12 +6,13 @@
 
 <p>hi im solace/bread im a minor (15). main interests are <b>MSI, cry of fear, forsaken, combat initiation</b> (CRY OF FEAR AND COMBAT INITIATION FANS WYA 💔)</p>
 
-<h3>BYI</h3>
+<h3>BYI/BYF</h3>
 <ul>
   <li>i have the social awareness of a potato, yes i will think awkward silence is comfortable silence.</li>
   <li>i struggle w keeping convos going + i jump topics without realizing</li>
   <li>i may seem dry or awkward at first, pls be patient with me.</li>
   <li>if convos get awkward i tend to leave with an excuse, im sorry in advance 💔</li>
+  <LI>my social battery dies fast around strangers</LI>
 </ul>
 
 <h3>if you even care (not important)</h3>
@@ -23,7 +24,7 @@
 
 <h3>DNI</h3>
 <ul>
-  <li>weird ppl in general like ppl who claim to be narcissistics (undiagnosed >UNDIAGNOSED< OK) and thinks they r superior or smt</li>
+  <li>weird ppl in general like ppl who claim to be narcissistics (undiagnosed >UNDIAGNOSED< OK) and thinks they r superior or smt sorry this isnt to offend anyone :(</li>
   <li>proshippers or anything like that</li>
   <li>people whose whole personality is their partner/ex — im not tolerating ur yap session bs on how much u miss them (yes im talking about u ruben)</li>
   <li>super sensitive ppl dni dni dni dni</li>
