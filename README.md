@@ -23,7 +23,7 @@
 
 <h3>DNI</h3>
 <ul>
-  <li>weird ppl in general like ppl who claim to be narcissistics (undiagnosed) and thinks they r superior or smt</li>
+  <li>weird ppl in general like ppl who claim to be narcissistics (undiagnosed >UNDIAGNOSED< OK) and thinks they r superior or smt</li>
   <li>proshippers or anything like that</li>
   <li>people whose whole personality is their partner/ex — im not tolerating ur yap session bs on how much u miss them (yes im talking about u ruben)</li>
   <li>super sensitive ppl dni dni dni dni</li>
