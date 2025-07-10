@@ -31,6 +31,7 @@
   <li>id like my friends to be over 13 ok, unless set with boundaries</li>
 </ul>
 
-dude i love c+h i dont put it in my display cus i cant be bothered. i would love for you to start convos first I FW TALKATIVE PPL, i go nonverbal sometimes, if i have like dniuf or dniuid dont worry about me my social battery dies quick sometimes
+i think i might be dealing with complex ptsd, it messes with how my brain works and how i act sometimes. that includes my memory being kind of bad, so i might need reminders every now and then. sorry please be patient w me.
+
 
 ![image](https://github.com/user-attachments/assets/2178ac70-8ded-49a6-a5c9-66297795cc17)
