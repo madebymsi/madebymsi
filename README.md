@@ -2,7 +2,7 @@
   <h1 align="center">fish.</h1>
 </div>
 
-<p><b>INTERACT WITH CAUTION:</b> my humour can make SOME people uncomfortable. sorry sorry id hate to make u uncomfortable please point it out if im being too much. i think i might be dealing with complex ptsd, it messes with how my brain works and how i act sometimes. that includes my memory being kind of bad, so i might need reminders every now and then. sorry please be patient w me.</p></p>
+<p><b>INTERACT WITH CAUTION:</b> my humour can make SOME people uncomfortable. sorry sorry id hate to make u uncomfortable please point it out if im being too much. i think i might be dealing with complex ptsd, it messes with how my brain works and how i act sometimes. that includes my memory being kind of bad, so i might need reminders every now and then. sorry please be patient w me. i also have emotional dysregulation.</p></p>
 
 <p>hi im solace im a minor (15). main interests are <b>MSI, cry of fear, forsaken, combat initiation</b> (CRY OF FEAR AND COMBAT INITIATION FANS WYA 💔)</p>
 
