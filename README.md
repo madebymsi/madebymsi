@@ -10,7 +10,7 @@
 <ul>
   <li>i struggle w keeping convos going + i jump topics without realizing</li>
   <li>if convos get awkward i tend to leave with an excuse, im sorry in advance 💔</li>
-  <LI>my social battery dies fast around strangers, probably why i struggle making friends.</LI>
+  <LI>my social battery dies fast around strangers probably why i struggle making friends, im not the biggest fan when it comes to socializing.</LI>
 </ul>
 </ul>
 
