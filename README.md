@@ -22,4 +22,4 @@
   <li>id like my friends to be over 13 ok, unless set with boundaries</li>
 </ul>
 
-![image](https://github.com/user-attachments/assets/2178ac70-8ded-49a6-a5c9-66297795cc17)
+<img width="389" height="202" alt="image" src="https://github.com/user-attachments/assets/a81c0733-428a-4a3c-af94-0b7002c6649d" />
