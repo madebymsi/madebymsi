@@ -22,4 +22,8 @@
   <li>id like my friends to be over 13 ok, unless set with boundaries</li>
 </ul>
 
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/2b3e72bd-046d-42bf-85e2-85ab330d5287" />
+
 <img width="389" height="202" alt="image" src="https://github.com/user-attachments/assets/a81c0733-428a-4a3c-af94-0b7002c6649d" />
+
+
