@@ -1,5 +1,5 @@
 <div style="background-color: red; padding: 20px; border-radius: 10px;">
-  <h1 align="center">fish.</h1>
+  <h1 align="center">look in rentry byi</h1>
 </div>
 
 <p><b>INTERACT WITH CAUTION:</b> my humour can make SOME people uncomfortable. i think i might be dealing with complex ptsd, it messes with how my brain works and how i act sometimes. that includes my memory being kind of bad, so i might need reminders every now and then. sorry please be patient w me. i also have emotional dysregulation.</p></p>
