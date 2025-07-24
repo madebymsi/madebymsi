@@ -4,15 +4,9 @@
 
 <p><b>INTERACT WITH CAUTION:</b> my humour can make SOME people uncomfortable. i think i might be dealing with complex ptsd, it messes with how my brain works and how i act sometimes. that includes my memory being kind of bad, so i might need reminders every now and then. sorry please be patient w me. i also have emotional dysregulation.</p></p>
 
-<p>hi im solace im a minor (15). main interests are <b>MSI, cry of fear, forsaken, combat initiation</b> (CRY OF FEAR AND COMBAT INITIATION FANS WYA 💔)</p>
+<p>hi im solace im a minor (15). main interests are <b>MSI, cry of fear, forsaken, combat initiation</b> (CRY OF FEAR AND COMBAT INITIATION FANS WYA 💔)
+feel free to ask me questions ^_^</p>
 
-<h3>BYI/BYF (also look in rentry pls!)</h3>
-<ul>
-  <li>i struggle w keeping convos going + i jump topics without realizing</li>
-  <li>if convos get awkward i tend to leave with an excuse, im sorry in advance 💔</li>
-  <LI>my social battery dies fast around strangers probably why i struggle making friends, im not the biggest fan when it comes to socializing.</LI>
-</ul>
-</ul>
 
 <h3>DNI</h3>
 <ul>
